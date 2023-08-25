@@ -14,3 +14,8 @@ sbdv bsv cb b vdhsbvcdcv. hdbcjndbcdnbcjd
 vdsc v bd cbvdv cbdvccvbhdvcbd c vhdbvchdbd
 nbc n czn cNMC  nx zcnx NX
  zxxzczxzx
+cfn sanca snc a
+cnsa cna 
+csan cmCMA Cms 
+cANCS MC
+cAC Am
